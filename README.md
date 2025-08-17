@@ -48,6 +48,6 @@
 
 ## 🌐 Connect with Me
 - 📫 Email: [supriyaraja592@gmail.com](mailto:supriyaraja592@gmail.com)  
-- 💼 LinkedIn: [Supriya R](https://www.linkedin.com/in/supriya-r)  
+- 💼 LinkedIn: [Supriya R](https://www.linkedin.com/in/supriya-r-b00053290?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app)  
 
 ✨ *Always learning, building, and exploring the intersection of hardware and software.*  
